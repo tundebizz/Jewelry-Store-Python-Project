@@ -1,1 +1,1 @@
-# jewery
+# jewelry
